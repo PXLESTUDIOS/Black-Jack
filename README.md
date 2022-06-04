@@ -6,4 +6,4 @@ The is my game called Black Jack! Enjoy!
 
 [Windows](https://drive.google.com/file/d/1e8o3wGATV2V-fFANm3BNyiK04e_yjC8X/view?usp=sharing)
 
-[Android](https://drive.google.com/file/d/1e8o3wGATV2V-fFANm3BNyiK04e_yjC8X/view?usp=sharing)
+[Android](https://drive.google.com/file/d/1Mb1MHzcVLsHJ24fwzmIxWUA33fQqNLNU/view?usp=sharing)
